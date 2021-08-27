@@ -6,6 +6,10 @@ Contact with me to get the Password of Zip file on :
  Telegram : https://t.me/erfan4lx
   
  Email : erfan4lx@gmail.com
+ 
+Show full video on YouTube : https://youtu.be/dVzEDBt-q40/
+
+Show demo video on Instagram : https://www.instagram.com/p/CTFasokjoMe/
 
 🆔My YouTube Channel : http://youtube.com/erfan4lx
 
