@@ -1,15 +1,13 @@
 # Instagram-Auto-Liker
 Automatic bot for like the posts of your destination tag on Instagram to gain real followers
 
-Purchase it on my website : https://erfan4lx.com/product/instagram-auto-liker
-
 Contact with me to get the Password of Zip file on :
 
  Telegram : https://t.me/erfan4lx10
   
  Email : erfan4lx@gmail.com
  
-Show full video on YouTube : https://youtu.be/dVzEDBt-q40/
+Show full video on YouTube : Video got deleted by YouTube, you can contact me to get the video.
 
 🆔My YouTube Channel : https://youtube.com/erfan4lx
 
